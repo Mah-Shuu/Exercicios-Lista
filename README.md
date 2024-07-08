@@ -1,1 +1,0 @@
-# Exercicios-lista-1
